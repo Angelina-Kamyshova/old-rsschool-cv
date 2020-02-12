@@ -7,9 +7,9 @@
 
 ## Contact Info.:
 
-*Phone:* [+998909837699](tel:+998909837699)
-*Email:* [angelinakamishova@gmail.com](mailto:angelinakamishova@gmail.com)
-*Telegram:* [@Zireael1803](https://t.me/Zireael1803)
+*Phone:* [+998909837699](tel:+998909837699)  
+*Email:* [angelinakamishova@gmail.com](mailto:angelinakamishova@gmail.com)  
+*Telegram:* [@Zireael1803](https://t.me/Zireael1803)  
 *Skype:* [Ангелина Камышова](https://join.skype.com/invite/ifFq5jmipzaZ)  
 
 ## Summary:
